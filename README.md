@@ -1,0 +1,1 @@
+Recession Blockbusters explores how economic downturns shape the stories audiences turn to in theaters. Drawing on U.S. box office data from 2000–2023, this case study traces the connection between recession cycles and the emotional tones of hit films- revealing how cinema meets deeper cultural needs when times are hardest.
